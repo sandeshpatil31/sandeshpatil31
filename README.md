@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Java,Spring**
 
-- 📫 How to reach me ****
+- 📫 How to reach me **sandeshpatil.3188@gmail.com**
 
 - ⚡ Fun fact ** I am funny**
 
